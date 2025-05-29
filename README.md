@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @diviiij
-- 👀 I’m interested in a lot of fields and people
-- 🌱 I’m currently learning life
+- 👀 I’m interested in a lot of fields that include exploring AI tools, business & data analytics and people
+- 🌱 I’m currently learning life & music
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me divijpant@gmail.com
 
